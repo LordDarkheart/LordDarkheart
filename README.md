@@ -8,4 +8,4 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/ewfsh5.webp)
+![](https://files.catbox.moe/ctu7x5.png)
